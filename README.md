@@ -1,6 +1,4 @@
-<p align="center">
-  <img src="https://telegra.ph/file/efeaec39efb273b2d372a.jpg" alt="Movie🍿by Simplifytuber BOT Logo">
-</p>
+
 <h1 align="center">
   Movie🍿by Simplifytuber BOT
 </h1>
