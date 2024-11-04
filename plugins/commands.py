@@ -103,7 +103,7 @@ async def start(client, message):
             ],
             [
                 InlineKeyboardButton(
-                    "📢 REQUEST TO JOIN FOLDER 📢", url="https://t.me/addlist/8smDC_NNTO1hNDY9"
+                    "📢 REQUEST TO JOIN FOLDER 📢", url="https://t.me/addlist/bms1dw0mVdk4YWRl"
                 )
             ]
         ]
