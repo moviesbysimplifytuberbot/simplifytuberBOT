@@ -328,7 +328,7 @@ BOT WORKING PROPERLY"""
 
  படி 2: உங்கள் இணையதளம் மற்றும் API ஐச் சேர்க்கவும்
 
- Exp: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
 
  வீடியோவைச் சேர்க்கவும்
 
@@ -355,9 +355,9 @@ Hey {}
 
  Step 2: Add your website and API
 
- Exp: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
  
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  Add a video
 
@@ -384,9 +384,9 @@ Also your tutorial will be Added Your Group..."""
 
  దశ 2: మీ వెబ్‌సైట్ మరియు APIని జోడించండి
 
- గడువు: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ గడువు: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
  
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  వీడియోను జోడించండి
 
@@ -415,7 +415,7 @@ Also your tutorial will be Added Your Group..."""
 
  एक्सप: /शॉर्टलिंक modijiurl.com 4b392fkjhgfd711fbe58
   
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  एक वीडियो जोड़ें
 
@@ -442,9 +442,9 @@ Also your tutorial will be Added Your Group..."""
 
  ഘട്ടം 2: നിങ്ങളുടെ വെബ്‌സൈറ്റും API-യും ചേർക്കുക
 
- കാലഹരണപ്പെടൽ: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ കാലഹരണപ്പെടൽ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
 
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  ഒരു വീഡിയോ ചേർക്കുക
 
@@ -471,9 +471,9 @@ Also your tutorial will be Added Your Group..."""
 
  مرحلہ 2: اپنی ویب سائٹ اور API شامل کریں۔
 
- Exp: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
  
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  ایک ویڈیو شامل کریں۔
 
@@ -500,9 +500,9 @@ Also your tutorial will be Added Your Group..."""
 
  પગલું 2: તમારી વેબસાઇટ અને API ઉમેરો
 
- સમાપ્તિ: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ સમાપ્તિ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
 
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  વિડિઓ ઉમેરો
 
@@ -528,9 +528,9 @@ Also your tutorial will be Added Your Group..."""
 
  ಹಂತ 2: ನಿಮ್ಮ ವೆಬ್‌ಸೈಟ್ ಮತ್ತು API ಸೇರಿಸಿ
 
- ಅವಧಿ: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ ಅವಧಿ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
  
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  ವೀಡಿಯೊ ಸೇರಿಸಿ
 
@@ -556,9 +556,9 @@ Also your tutorial will be Added Your Group..."""
 
  ধাপ 2: আপনার ওয়েবসাইট এবং API যোগ করুন
 
- মেয়াদ: /shortlink modijiurl.com 02096eccdd1bb5dbd969b5023a01e694c071c60c
+ মেয়াদ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
 
- 🍟REFERRAL : https://modijiurl.com/7LgRoG
+ 🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
  একটি ভিডিও যোগ করুন
 
