@@ -328,7 +328,7 @@ BOT WORKING PROPERLY"""
 
  படி 2: உங்கள் இணையதளம் மற்றும் API ஐச் சேர்க்கவும்
 
- Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ Exp: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
 
  வீடியோவைச் சேர்க்கவும்
 
@@ -355,7 +355,7 @@ Hey {}
 
  Step 2: Add your website and API
 
- Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ Exp: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
  
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -384,7 +384,7 @@ Also your tutorial will be Added Your Group..."""
 
  దశ 2: మీ వెబ్‌సైట్ మరియు APIని జోడించండి
 
- గడువు: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ గడువు: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
  
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -442,7 +442,7 @@ Also your tutorial will be Added Your Group..."""
 
  ഘട്ടം 2: നിങ്ങളുടെ വെബ്‌സൈറ്റും API-യും ചേർക്കുക
 
- കാലഹരണപ്പെടൽ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ കാലഹരണപ്പെടൽ: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
 
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -471,7 +471,7 @@ Also your tutorial will be Added Your Group..."""
 
  مرحلہ 2: اپنی ویب سائٹ اور API شامل کریں۔
 
- Exp: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ Exp: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
  
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -500,7 +500,7 @@ Also your tutorial will be Added Your Group..."""
 
  પગલું 2: તમારી વેબસાઇટ અને API ઉમેરો
 
- સમાપ્તિ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ સમાપ્તિ: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
 
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -528,7 +528,7 @@ Also your tutorial will be Added Your Group..."""
 
  ಹಂತ 2: ನಿಮ್ಮ ವೆಬ್‌ಸೈಟ್ ಮತ್ತು API ಸೇರಿಸಿ
 
- ಅವಧಿ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ ಅವಧಿ: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
  
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
@@ -556,7 +556,7 @@ Also your tutorial will be Added Your Group..."""
 
  ধাপ 2: আপনার ওয়েবসাইট এবং API যোগ করুন
 
- মেয়াদ: /shortlink adrinolinks.com c4227f62ad87b066737db541e9a0abf5d5410b2f
+ মেয়াদ: /shortlink adrinolinks.in c4227f62ad87b066737db541e9a0abf5d5410b2f
 
  🍟REFERRAL : https://adrinolinks.in/ref/YASHGUPTA
 
